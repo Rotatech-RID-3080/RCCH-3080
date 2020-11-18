@@ -1,4 +1,4 @@
-# RCCH-3080
+# ROTARACT CHANDIGARH HIMALAYAN | ROTATECH 
 About Us
 <b>Rotaract Club Chandigarh Himalayan</b> is a youth wing of the prestigious organization ‘Rotary International‘. It comes under the District 3080 and it has ‘Rotary Club Himalayan Ranges Mansa Devi‘ as its parent Rotary. The members of the club come from 25+ colleges in and around the city.
 <br>
